@@ -6,6 +6,5 @@
 - 😄 Pronouns: She/ Her
 - ⚡ Fun fact: It has been 3 days since I said i'm going back to gym :) I'm gooing now ;) 
 - I looking for a Mentor So if you are interested teaching a newbies I'm all yours and I have a lot of free time!
-ElodieDs/ElodieDs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+ElodieDs/ElodieDs 
 --->
